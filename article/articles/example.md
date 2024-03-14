@@ -1,0 +1,12 @@
+Ten years after writing his first song "A-France", slammer Gaël Faye is back with an album entitled "Pili Pili sur un croissant au beurre", in which he recounts the highlights of his life in fifteen tracks.
+
+Gaël Faye, a Franco-Rwandan slammer born in Burundi in 1982, is making a solo comeback after a hundred or so national tours with his group Milk Coffee & Sugar. With four months to go before the release of his album, Pili Pili sur un croissant au beurre, Gaël Faye gave his fans a sneak preview on 4 May on stage at the Maison des pratiques artistiques amateurs in Paris. "It's an album built on an in-between: between Africa and France, between whites and blacks, between me and my daughter, me and my wife", he told his audience that evening.
+This album recounts important moments in his life. The joys of his childhood spent in Bujumbura (the capital of Burundi), the birth of his daughter... But also difficult periods, his exile, lost illusions...
+
+Attending a Gaël Faye concert is like taking a single ticket to Bujumbura. Like a pilot, he transports his audience into another world. It's the world of a "novel written in music (...), a need to put words" to the story of his life. He indulges, not without modesty, in a slam in which he talks about his wife with the title Ma Femme, or about his daughter, Isimbi, whose first name has been used as the title of one of his songs. "What's more important in life than a child? 
+
+Then comes Petit Pays. That moment when Gaël Faye takes us with him back to his childhood in Burundi. Or Pili Pili, those moments of suffering, love and uprootedness. Throughout the concert, Gaël will try to answer questions. Questions that haunt him, from the most trivial to the most serious: that "cursed month of April", his passion for his qwerty keyboard, his desire to "lift up his native country"...
+
+The title of his album, due for release on 24 September, has both a quirky and mysterious feel. "Pili Pili sur un croissant au beurre" is his way of paying tribute to his two homelands: France and Africa, and Rwanda and Burundi in particular. Above all, he pays tribute to his mother: the pili pili, a red pepper widely used in Africa. And to his father: the butter croissant, the symbol of Viennese pastries in France. In fact, his song Pili Pili evokes the meeting of his parents, from two different cultures but united by destiny.
+
+Gaël's album is all about cultural blending. Songs like A France, or Métis, when I make them listen to them," says the singer, "they get together and say that's exactly what it is!
