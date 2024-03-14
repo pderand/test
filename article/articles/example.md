@@ -1,12 +1,40 @@
-Ten years after writing his first song "A-France", slammer Gaël Faye is back with an album entitled "Pili Pili sur un croissant au beurre", in which he recounts the highlights of his life in fifteen tracks.
+# Pink Floyd - The Wall
+## Claudio Satriano
+### From [https://en.wikipedia.org/wiki/The_Wall](https://en.wikipedia.org/wiki/The_Wall)
 
-Gaël Faye, a Franco-Rwandan slammer born in Burundi in 1982, is making a solo comeback after a hundred or so national tours with his group Milk Coffee & Sugar. With four months to go before the release of his album, Pili Pili sur un croissant au beurre, Gaël Faye gave his fans a sneak preview on 4 May on stage at the Maison des pratiques artistiques amateurs in Paris. "It's an album built on an in-between: between Africa and France, between whites and blacks, between me and my daughter, me and my wife", he told his audience that evening.
-This album recounts important moments in his life. The joys of his childhood spent in Bujumbura (the capital of Burundi), the birth of his daughter... But also difficult periods, his exile, lost illusions...
+The Wall is the eleventh studio album by English rock band Pink Floyd, released
+in 1979 through Harvest and Columbia Records. Conceived during the In The Flesh
+tour, recording spanned nearly a year, from December 1978 to November 1979, and
+took place in France, England, New York, and Los Angeles. It was produced by Bob
+Erzin, who helped to refine the concept and bridge tensions during recording.
+Some of the outtakes from the recording sessions were used on the band's next
+album, The Final Cut (1983).
 
-Attending a Gaël Faye concert is like taking a single ticket to Bujumbura. Like a pilot, he transports his audience into another world. It's the world of a "novel written in music (...), a need to put words" to the story of his life. He indulges, not without modesty, in a slam in which he talks about his wife with the title Ma Femme, or about his daughter, Isimbi, whose first name has been used as the title of one of his songs. "What's more important in life than a child? 
+![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
 
-Then comes Petit Pays. That moment when Gaël Faye takes us with him back to his childhood in Burundi. Or Pili Pili, those moments of suffering, love and uprootedness. Throughout the concert, Gaël will try to answer questions. Questions that haunt him, from the most trivial to the most serious: that "cursed month of April", his passion for his qwerty keyboard, his desire to "lift up his native country"...
+A rock opera and a concept record, its story explores Pink, a jaded rockstar
+that bassist Roger Waters modeled after himself and band founder Syd Barrett.
+Pink's life begins with the loss of his father during the Second World War and
+continues with abuse from his schoolteachers, an overprotective mother, and the
+breakdown of his marriage; all contribute to his eventual self-imposed isolation
+from society, symbolised by a wall. The band, who were then struggling with
+personal and financial difficulties, supported the idea. The Wall is the last
+album to feature Pink Floyd as a quartet; keyboardist Richard Wright was fired
+by Waters during production, but stayed on as a salaried musician. The record
+was promoted with three singles: "Another Brick in the Wall, Part 2", "Run Like
+Hell", and "Comfortably Numb", the first of which became the band's only number
+one single in the US. From 1980 to 1981, the group embarked on The Wall Tour,
+which was notable for its elaborate theatrical effects. The concept was later
+adapted into a feature film of the same name, directed by Alan Parker and
+released in 1982.
 
-The title of his album, due for release on 24 September, has both a quirky and mysterious feel. "Pili Pili sur un croissant au beurre" is his way of paying tribute to his two homelands: France and Africa, and Rwanda and Burundi in particular. Above all, he pays tribute to his mother: the pili pili, a red pepper widely used in Africa. And to his father: the butter croissant, the symbol of Viennese pastries in France. In fact, his song Pili Pili evokes the meeting of his parents, from two different cultures but united by destiny.
+The Wall received mixed reviews from critics upon its release, many of whom
+found its contents to be overblown and pretentious. Retrospectively, it is
+considered one of the greatest albums of all time, and is one of the most
+well-known concept albums. The record was a commercial success, reaching number
+one in the US (where it stayed for 15 weeks), and number three in the UK. As of
+2018, the album has sold over 24 million copies, the second best-selling in the
+band's catalog, as well as one of the best-selling of all time.
 
-Gaël's album is all about cultural blending. Songs like A France, or Métis, when I make them listen to them," says the singer, "they get together and say that's exactly what it is!
+> I think things like 'Comfortably Numb' were the last embers of mine and
+> Roger's ability to work collaboratively together. David Gilmour
